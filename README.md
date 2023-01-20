@@ -1,1 +1,0 @@
-# Detect-Autistic-Spectrum-Disorder-ASD-
